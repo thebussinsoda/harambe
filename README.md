@@ -1,2 +1,2 @@
 # harambe
-in honor of the late great harambe
+in honor of the late great monkey
